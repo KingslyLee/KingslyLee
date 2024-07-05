@@ -1,4 +1,4 @@
-## 👋 Hi, I’m @KingslyLee
+## KingslyLee
 - 👀 I’m interested in ...
 
 <!---
